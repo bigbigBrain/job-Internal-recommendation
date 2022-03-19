@@ -30,6 +30,6 @@
 <br>#你的队友#拥有超25年经验的世界级研发团队，剑桥、杜克、斯旺西、浙大、北航等知名院校博士与你一起头脑风暴~
 <br>#你的收获#，从优薪酬+**股权激励**+六险一金+应届租房补贴+弹性工作制+免费午餐+各类福利+专属培养计划+多通道职业发展
 <br>【岗位】算法、研发、测试、应用技术、职能、销售和市场等各类岗位，全国多地任君选择，海量offer等你挑
-<br>【马上网申】https://app.mokahr.com/m/campus_apply/zwcad/28356?recommendCode=DSgNgg6B#/jobs
-<br>【官方内推码】**DSgNgg6B**
+<br>【马上网申】https://app.mokahr.com/m/campus_apply/zwcad/28356?recommendCode=DS8p3qGF#/jobs
+<br>【官方内推码】**DS8p3qGF**
 <br>投递时填写，筛选快人一步，更有机会**减免笔面试**环节，offer一举拿下！
