@@ -33,8 +33,8 @@
 解决北京、上海户口，高薪，公积金满额缴纳，七险一金...<br>
 无人驾驶领域全球首家上市公司，面向全球提供可大规模商业化运营的无人驾驶卡车技术，并启动全球首个无人驾驶货运网络（Autonomous Freight Network, AFN）让无人驾驶卡车安全可靠地进行仓到仓运输，为全球物流运输行业赋能。<br>
 【岗位介绍和投递链接】👇<br>
-https://app.mokahr.com/m/campus_apply/tusenweilai/35932?recommendCode=DSKGqPab#/jobs<br>
-【内推码】`DSKGqPab`<br>
+https://app.mokahr.com/m/campus_apply/tusenweilai/35932?recommendCode=DSBdxKPp#/jobs<br>
+【内推码】`DSBdxKPp`<br>
 保存内推码，投递时填写，内推**免笔试，直达面试**，流程更快，简历不会石沉大海，进度实时帮查，好坏都会有个交代～加入图森内推交流群：`727356828`
 ## 【剑心互娱游戏】【简历免筛选直达笔试】
 2022春招&2023实习招聘开启中！<br>
@@ -340,8 +340,8 @@ https://app.mokahr.com/m/campus_apply/37/25238?recommendCode=DSrnb7zx#/jobs<br>
 #你的队友#拥有超25年经验的世界级研发团队，剑桥、杜克、斯旺西、浙大、北航等知名院校博士与你一起头脑风暴~<br>
 #你的收获#，从优薪酬+股权激励+六险一金+应届租房补贴+弹性工作制+免费午餐+各类福利+专属培养计划+多通道职业发展<br>
 【岗位】算法、研发、测试、应用技术、职能、销售和市场等各类岗位，全国多地任君选择，海量offer等你挑<br>
-【马上网申】https://app.mokahr.com/m/campus_apply/zwcad/28356?recommendCode=DSgNgg6B#/jobs<br>
-【官方内推码】`DSgNgg6B`<br>
+【马上网申】https://app.mokahr.com/m/campus_apply/zwcad/28356?recommendCode=DS8p3qGF#/jobs<br>
+【官方内推码】`DS8p3qGF`<br>
 投递时填写，筛选快人一步，更有机会**减免笔面试**环节，offer一举拿下！
 ## 【智臾科技】【高薪科技公司】【内推简历免筛选】
 招收**应届、往届、实习生**❗️<br>
